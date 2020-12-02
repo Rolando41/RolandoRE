@@ -6,7 +6,7 @@
 # Información.
 
 Me considero una persona interresada por el desarrollo móvil y web, motivado a mejorar y aprender todos los días.
-Mi actitud para el trabajo en equipo y la facilidad de comunicarme con otras personas me han hecho crecer de muchas formas y ser participe de muchas de las decisiones que ayudan el crecimiento del equipo de trabajo.
+Soy una persona con una gran actitud para el trabajo en equipo y ina gran acapacidad de comunicación lo que me a ayudad a mejorar en mi crecimiento.
 
 # Lenguajes:
 
